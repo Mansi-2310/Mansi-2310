@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on trending datasets
 - 📫 How to reach me, through my GitHub
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I like to write also.
+- ⚡ Fun fact: I like creative writing like poetry.
 
 <!---
 Mansi-2310/Mansi-2310 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
